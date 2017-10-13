@@ -1,6 +1,6 @@
 proyecto integrador 
 --------------------
-año nuevo en la peninsula , en la decada de los 80
+año nuevo en la peninsula de Campeche  , en la decada de los 80
 creando una galería en 3d, como tema el año nuevo en la peninsula en la decada de 1980.
 público objetivo
 •	Adolescentes y adultos.
